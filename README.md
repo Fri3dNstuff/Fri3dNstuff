@@ -1,5 +1,3 @@
-Read name as: /fʀid/
+Hi wussup?
 
-Pronouns: He / Him
-
-Speaks: Hebrew, English
+I have nothing really to write here :|
